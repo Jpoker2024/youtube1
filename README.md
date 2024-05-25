@@ -1,6 +1,6 @@
 # 博主自建机场
 
-- [博主自建机场网站](http://www.poker2024.top)
+- [博主自建机场网站](http://www.poker2024.buzz)
 
 - [博主自己的讨论组](https://t.me/+NSWJxIng-JAyOTkx)
 
